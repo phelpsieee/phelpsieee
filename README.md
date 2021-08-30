@@ -1,4 +1,4 @@
-- Heyo, I’m @phelpsieee
+- Heyo, I’m Phelsieee, or Phelps for short
 - I’m interested in gaming and aviation, nothin fancy
 - I’m currently learning Python
 - Contact me through Discord: @Phelpsieee#1605
